@@ -2,7 +2,7 @@
 - 👀 I’m interested in chess, learning languages and coding websites/apps
 - 🌱 I’m currently learning Java, the programming language
 - 📫 How to reach me
--    Email: sherozbekmominov20072gmail.com
+-    Email: sherozbekmominov2007gmail.com
 -    Instagram:  https://www.instagram.com/it.z_blazzy/#
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: i know how to play chess
